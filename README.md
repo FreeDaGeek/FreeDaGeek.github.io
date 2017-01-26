@@ -1,2 +1,0 @@
-# freedageek.io
-Updated Portfolio
